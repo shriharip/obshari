@@ -1,2 +1,3 @@
 
 namo vasudeva
+namo shakti
